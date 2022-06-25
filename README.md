@@ -1,7 +1,7 @@
 ## 👋 Welcome 
 ![welcome](https://user-images.githubusercontent.com/103531256/174461147-b4cfc592-8852-46c9-92c6-e7cf08ad2ac1.gif)
 
-### **⚠️ Before purchasing anything from NFT/Crypto Scam, please read this or you will get scammed!**
+### **⚠️ Before purchasing anything for NFT scams (drainers or mint pages), please read this or you will get scammed!**
 
 ---
 
@@ -10,19 +10,19 @@ This repositories will have **2** parts:
 #### 1️⃣ → Scammer list
 #### 2️⃣ → Informations about scammers
 
-
+I didn't included @cryptoscem because we have no proper proof that he is a scammer (we will keep looking for evidence dm: @https://t.me/iresell
 ---
 
-## - `0x32Moon`[1st Github](https://github.com/0x32Moon/) | He has 5 githubs to scam people using backdoor, because he don't make any sales after his business was fvcked by cryptoscem.
+## - `0x32Moon | Zentoh | CryptoDrainers`[1st Github](https://github.com/0x32Moon/) | 
 ## [click here for proofs](https://t.me/zentohh) ⚠️
 ## 🕵️ other identities: Zentoh | Alxapone | CryptoDrainers | TecOnSellix | RichOnSellix | Menoh
-### To start, this guy scammed **+ 200** people from his shop, sellix shop got terminated **5** times [first](https://nftdrainners.sellix.io) | [second](https://teccsd.sellix.io) for fake reviews and scam. **⚠️ Don't trust this French cause his mother was fvcked by Louis XVI**
+### To start, this guy scammed **+ 200** people from his shop, sellix shop got terminated **2** times [first](https://nft-professor.sellix.io) | [second](https://nftservices.sellix.io) for fake reviews and scam. **⚠️
 
-## He has like so many alternative on telegram: TecOnSellix, RichOnSellix, Alxapone, Zentoh & Even our reports cannot find all!
-## His main channel is @CryptoDrainers and his current sites are drainers.shop and tec.sellix.io
+## He has like so many alternative on Telegram: TecOnSellix, RichOnSellix, Alxapone, Zentoh & Even our reports cannot find all!
+## His main channel is @CryptoDrainers on telegram and his current sites are **drainers.shop** and **tec.sellix.io** (this sellix will get banned in few days)
 
-## Don't worry, crypto scem fvcked him so hard that, he keeps making new alts and getting banned 🤣
-![zentoh](https://cdn.discordapp.com/attachments/989477078736961576/989919894273409055/Screenshot_2022-06-24_211754.png)
+## He make no sales after he was exposed 🤣
+![zentoh](https://avatars.githubusercontent.com/u/104867492?v=4)
 
 ---
 
